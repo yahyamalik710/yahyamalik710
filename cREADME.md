@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yahyamalik710
+- 👀 I’m interested in youtube video editing.
+- 🌱 I’m currently learning about how to add visulizers effect in music videos.
+- 💞️ I’m looking to collaborate on music production.
+- 📫 you can contact me any time on on this email.(yahyapakistani710@gmail.com).or through the contact number[03056710472].
